@@ -1,0 +1,1 @@
+Hier werden alle Philosophie-bezogenen Inhalte gemanaged.
