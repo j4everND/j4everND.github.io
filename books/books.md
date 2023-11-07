@@ -1,1 +1,0 @@
-Hier werden alle Buch-bezogenen Inhalte gemanaged.
